@@ -14,3 +14,13 @@ Jesse (12:30pm)
 Ami (12:30pm)  
 Eli (3:30pm)  
 Lael (12:30pm)  
+
+#### Team 1: Pending Memorable and Catchy Name
+
+Sarita 
+Michelle
+Antonius
+Jianzhen
+Valeria
+Lucas
+(All in 3:30pm)
